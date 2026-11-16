@@ -1,5 +1,5 @@
 ## Título
-
+Jaime e a Guerra dos Cangurus no Futuro
 ### Introdução
 
 Era uma vez um garoto chamado Jaime, que era fascinado por ciência e viagem no tempo... 
@@ -10,3 +10,4 @@ Jaime, sem entender nada daquilo que estava vendo, piscou várias vezes, achando
 
 Jaime respirou fundo e, mesmo tremendo de medo, decidiu se aproximar dos cangurus de lenço vermelho. Assim que chegou perto, foi cercado por três deles, que desconfiaram de sua presença. Desesperado, Jaime levantou as mãos e gritou que só queria ajudar. O ancião, que havia observado tudo de longe, aproximou-se e perguntou de onde aquele garoto tinha vindo. Jaime, sem saber como explicar que havia viajado no tempo usando um relógio encontrado no porão de seu avô, simplesmente mostrou o objeto. Ao ver o relógio, o ancião ficou paralisado e disse: "Então é verdade... a profecia estava certa!". Jaime ficou ainda mais confuso, até que o velho canguru revelou que, muitos anos atrás, um cientista humano havia criado uma máquina capaz de controlar o tempo, e que somente alguém vindo do passado poderia impedir que os cangurus malignos dominassem o planeta.
 ### Conclusão
+Guiado pelas instruções do ancião, Jaime entendeu que o cientista da profecia era, na verdade, seu próprio avô, que havia escondido o relógio no porão esperando que um dia o neto completasse sua missão. Usando os conhecimentos de ciência que tanto estudava, o garoto ajustou as engrenagens do relógio para soltar uma onda sonora que desativou os capacetes tecnológicos e anulou o efeito do gás de hipnose, libertando todos os humanos das jaulas e fazendo os cangurus malignos recuarem. Com a paz selada entre os humanos e os cangurus de lenço vermelho, Jaime se despediu do ancião, girou o ponteiro de volta para o presente e retornou ao porão de casa com a certeza de que a ciência e a coragem podem mudar qualquer futuro.
